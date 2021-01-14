@@ -10,5 +10,4 @@ Have a great day!
 
 Kartikeya Tiwari
 
-phone number- 9807666000
 email- tkartikeya24@gmail.com
